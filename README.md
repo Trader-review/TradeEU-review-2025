@@ -8,7 +8,7 @@ TradeEU has positioned itself as a trusted forex and CFD broker, offering trader
 In 2025, TradeEU introduced several updates and changes aimed at improving its trading conditions, security, and customer experience. But is it still a reliable broker? In this comprehensive review, we analyze TradeEU’s latest updates, trading conditions, security measures, and user feedback to determine whether it remains a top choice for traders.
 
 
-![image]()
+![image](https://github.com/Trader-review/TradeEU-review-2025/blob/cde898266d9365a52910eb3d32a4876dbc892e36/tradeeu%20logo%202.png)
 
 Key Updates and Changes in 2025
 --------------------
